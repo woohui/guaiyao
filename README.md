@@ -1,2 +1,2 @@
 # guaiyao
-<a href="mi.aliyun.com">Guaiyao.com</a> domain name is for sale. 
+<a href="https://mi.aliyun.com">Guaiyao.com</a> domain name is for sale. 
